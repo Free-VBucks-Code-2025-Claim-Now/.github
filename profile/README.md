@@ -1,4 +1,4 @@
-# Free VBucks Code ~(2025)~ Claim Now ~!!
+# Free VBucks Code (2025) Claim Now ~!!
 
 Are you searching for a **free VBucks code** to unlock your favorite Fortnite skins and emotes? You’ve just found the ultimate solution. In 2025, getting free V-Bucks is no longer a myth — our proven method delivers real, working V-Bucks codes straight to your Fortnite account in minutes. No scams. No stress.
 
